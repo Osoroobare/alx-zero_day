@@ -1,1 +1,1 @@
-my first readme
+Mr osoro is up and running
