@@ -1,1 +1,1 @@
-Mr osoro has gotten it now
+its tough bu i can do it
