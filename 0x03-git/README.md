@@ -1,1 +1,1 @@
-Mr osoro has gotten it now
+DO HARD THINGS
